@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+👩‍💻 We are research group team-sail 
+
+🌈 our growth is the most important assets 
+
 <!--
 
 **Here are some ideas to get you started:**
